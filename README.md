@@ -2,5 +2,5 @@
 
 Nauka
 
-Czesc jestem Daniel.
-Próbuje polubic informatyke
+Cześć jestem Daniel.
+Próbuję, polubić informatykę
